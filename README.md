@@ -1,2 +1,0 @@
-# ayushshankhwar.github.io
-Project
